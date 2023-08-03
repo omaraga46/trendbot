@@ -1,1 +1,5 @@
 # trendbot
+
+
+
+YATIRIM TAVSİYESİ İÇERMEZ.
